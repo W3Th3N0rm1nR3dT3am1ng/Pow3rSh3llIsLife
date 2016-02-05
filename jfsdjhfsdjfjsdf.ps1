@@ -1,1 +1,0 @@
-We the norm in red teaming
